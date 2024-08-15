@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yashoda8
+- 👋 Hi, I’m @yashoda
 - 👀 I’m interested in Learning
 - 🌱 I’m currently pursuing my B.Tech 3 rd year in VIT- AP University
 
